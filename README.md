@@ -1,1 +1,1 @@
-# Lincy-Niranjana-website
+# LincyNiranjana-website
